@@ -4,8 +4,8 @@
 
 ### 🥞Strogonoff de frango😋
 
-#### ![Mac CheeseGIF](https://user-images.githubusercontent.com/105497075/204578501-d84f048b-9530-43d7-b197-b9173ad5e3c5.gif)
 
+<img>http://shopblob.blob.core.windows.net/1403-produtoimagem/grd-strogonoff-de-carne.png
 
 
 
